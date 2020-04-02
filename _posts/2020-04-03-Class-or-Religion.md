@@ -18,6 +18,5 @@ There are several research papers from renowned economists establishing a clear 
 Why am I writing this? My sole goal is to make people aware that religion while being an important factor is not the primary one. The primary factor is class, and we have to fix it. Next time you see a video like Indore again, think about economic issues too.
 
 
-Regards,
-
+Regards,<br/>
 Shivam
