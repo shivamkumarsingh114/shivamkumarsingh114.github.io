@@ -12,3 +12,6 @@ What happened in Indore was not an isolated incident; similar incidents have bee
 There are several research papers from renowned economists establishing a clear correlation between class disenfranchisement, establishment-phobia and economic well being. This is a major reason why black neighbourhoods in the United States have higher crime rates than white neighbourhoods. This is the reason why North Bihar has a higher crime rate than South Bihar. Poverty breeds crime and fear of government, when you are poor and marginalised, your only hope becomes religion; unfortunately in Islam’s case, it pushes people centuries back and this results in even more fear-mongering and hate.
 
 Why am I writing this? My sole goal is to make people aware that religion while being an important factor is not the primary one. The primary factor is class, and we have to fix it. Next time you see a video like Indore again, think about economic issues too.
+
+Regards,
+Shivam
